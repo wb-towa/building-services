@@ -17,7 +17,7 @@ Contact details are marked with as such
 
 **Email:** nickbaker6@hotmail.co.uk
 
-A plumber in the Ely area that serves Cambridgeshire. I've always found him to be flexible, honest,does quality work and reasonably priced.
+A plumber in the Ely area that serves Cambridgeshire. I've always found him to be flexible, honest, does quality work and reasonably priced. Does both heating / gas and standard plumbing work.
 
 ## Plastering ##
 
