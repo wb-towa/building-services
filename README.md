@@ -38,3 +38,13 @@ Lives in Ely and serves the Cambridgeshire area. Very good work, honest and let'
 **Email:** info@ely-electrician.co.uk ⭐️
 
 I believe, from the Ely area but again serves Cambridgeshire. Of all the electricians I've contact they were the most responsive. Didn't just ghost me because they've got too much work. The work was A++, quote up front, quality safety checks and honest. I asked to have a plug fixed and rather than just saying they fixed it they pointed out it's not really broke but was install in a half baked manner.
+
+## Landscaping ##
+
+[Sid Bibby Landscaping](https://www.sidbibby.co.uk)
+
+**Phone:** +44 1353 777 909 ⭐️
+
+**Email:** info@sidbibby.co.uk ⭐️
+
+I've used Sid Bibby a few times for both fences and landscaping work. They've always been responsive and did a great job. The fences have been rock solid for years. That doesn't always seem to be the case with fences I've had done by other people.
