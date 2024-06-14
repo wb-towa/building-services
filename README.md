@@ -33,7 +33,7 @@ Lives in Ely and serves the Cambridgeshire area. Very good work, honest and let'
 
 [CD Clowe Electrical Services](http://www.ely-electrician.co.uk)
 
-**Phone:** +44 (0)7577 436374  ⭐️
+**Phone:** +44 (0)7577 436 374  ⭐️
 
 **Email:** info@ely-electrician.co.uk ⭐️
 
